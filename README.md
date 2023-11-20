@@ -15,7 +15,7 @@
 
 - [VIDEO](https://youtu.be/lRve2K0Pgpw)
 
-- [VIDEO](https://hz-store.tebex.io/package/6001669)
+- [TEBEX](https://hz-store.tebex.io/package/6001669)
 
 ![roda gigante fivem (2)](https://github.com/hzstore/roda_gigante/assets/145871489/fad5a68c-02ea-4fdb-b6d0-be144fe4d8e8)
 ![roda gigante fivem (3)](https://github.com/hzstore/roda_gigante/assets/145871489/f6d1a346-6c7b-47e0-a366-3c6371d3bbf0)
